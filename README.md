@@ -1,1 +1,0 @@
-# resolution2026-privacy
